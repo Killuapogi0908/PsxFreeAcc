@@ -1,0 +1,2 @@
+# PsxFreeAcc
+Not allowed scammer
